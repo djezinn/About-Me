@@ -1,7 +1,6 @@
-- @djezinn was here ᕙ⁠(⁠ ⁠~⁠ ⁠.⁠ ⁠~⁠ ⁠)⁠ᕗ
--
--
--
-- yt @someonewhocreatedthehowlspell
-- fb @djezinn
-- in @djezinn
+djezinn was here :)
+
+fb @djezinn
+in @djezinn
+th @djezinn
+yt @someonewhocreatedthehowlspell
